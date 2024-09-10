@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m Currently Preparing For My Bright Future.<br>🌱 I am Passionate about Coding and Research.<br>🤔Studying Cyber Physical Systems at Indian Institute of Technology Jodhpur<br>💬 Ask me about Coding & Exciting projects to work on.<br>📫 How to reach me: My Socials.<br>😄 Pronouns: She/Her.<br>⚡ Fact : “Don't let the noise of others opinions drown out your own inner voice.”
+🔭 I’m Currently Preparing For My Bright Future.<br>🌱 I am Passionate about Coding and Research.<br>🤔Studying Cyber Physical Systems at Indian Institute of Technology Jodhpur<br>💬 Ask me about Coding & Exciting projects to work on.<br>📫 How to reach me: My Socials.<br>😄 Pronouns: She/Her.<br>⚡ Fact : "Success is not how high you have climbed, but how you make a positive difference to the world." – Roy T. Bennett
 
 
 ## 🌐 Socials:
