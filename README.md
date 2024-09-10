@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m Currently Preparing For My Bright Future.<br>🌱 I am Passionate about Coding and Research.<br>🤔Studying Cyber Physical Systems at Indian Institute of Technology Jodhpur<br>💬 Ask me about Coding & Exciting projects to work on.<br>📫 How to reach me: My Socials.<br>😄 Pronouns: She/Her.<br>⚡ Fact : "Success is not how high you have climbed, but how you make a positive difference to the world." – Roy T. Bennett
+🔭 By profession I have been certified as a "Sangeet Visharad".<br>🎥 Currently, I am learning video editing techniques.<br>🏅 I am also a sports person<br>🌱 I am Passionate about Coding and Research.<br>🤔Studying Cyber Physical Systems at Indian Institute of Technology Jodhpur<br>💬 Ask me about Coding & Exciting projects to work on.<br>📫 Reach me out: My Socials.<br>😄 Pronouns: She/Her.<br>⚡ Fact : "Success is not how high you have climbed, but how you make a positive difference to the world." – Roy T. Bennett
 
 
 ## 🌐 Socials:
